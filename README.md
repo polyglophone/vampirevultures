@@ -6,8 +6,8 @@ here
 **(you)** may find  
 things in the wrong folders.  
 things that smell like your childhood.  
-things that crawl when you unzip them.
-nulls that cry when you point them.
+things that crawl when you unzip them.  
+nulls that cry when you point them.  
 chew slow. And remember your mother. 
 
 ```
