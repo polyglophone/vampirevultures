@@ -12,6 +12,6 @@ chew slow. And remember your mother.
 
 ```
 .==[ V//A//M//P//I//R//E ]========[ VULTURES ]==.
-| all rights reversed all wrongs preserved   ©  |
+| all rights reversed all wrongs preserved ©2025|
 '==============================================='
 ```
